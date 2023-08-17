@@ -1,0 +1,4 @@
+- gello im Cosmo
+- I’m interested in Bsd, Okegom
+- He/they
+- Transmasc. Omni
